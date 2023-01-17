@@ -1,5 +1,5 @@
 # Innerverse
-Be your own God
+Be your own God.
 We are an endless stream of energy.
 Energy can't be destroyed.
 Learn to harvest this powerful energy.
